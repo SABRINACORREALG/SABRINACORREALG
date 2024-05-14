@@ -1,16 +1,14 @@
-### Hi there 👋
+### Seja bem vindo ao meu perfil 🌊🖤
 
-<!--
-**SABRINACORREALG/SABRINACORREALG** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é _Sabrina Vitória!_ 🐈‍⬛
 
-Here are some ideas to get you started:
+- Estudo no Luiz Gama
+- Utilizo esse espaço para a organização dos meus projetos 📚
+  
+  _SIGA MINHA LOJA: @oestilolivre_ _no instagram_
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você pode entrar em contato comigo através do email:
+
+00001099959470sp@al.educacao.sp.gov.br
+
+![](https://media.tenor.com/dVzwsfQxks0AAAAM/cursed-hello-kitty-balloon-hello-kitty.gif)
